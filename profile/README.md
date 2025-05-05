@@ -1,4 +1,4 @@
-# � The Hundred Line Last Defense Academy  
+# � The Hundred Line Last Defense Academy For PC [Full Setup Available]
 *A Collaborative Masterpiece by Kazutaka Kodaka & Kotaro Uchikoshi*  
 
 ![Banner Image](https://www.nintendo.com/eu/media/images/assets/nintendo_switch_games/thehundredlinelastdefenseacademy/2x1_TheHundredLineLastDefenseAcademy_image1600w.jpg)  
